@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @xLuz
+👋 Hi, I’m @xLuz
